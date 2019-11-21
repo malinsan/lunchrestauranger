@@ -27,7 +27,7 @@ __Tacos & Tequila__ - Goda tacos men för små för att bli mätt. Oklart om veg
 
 __ICA__ - Stort utbud av ofta goda färska färdigrätter att plinga, men små portioner så inte särskilt prisvärt ändå
 
-__Sukhothai__ - Enl. de själva var det tveksamt om grytorna var veganska, vilket innebar att det alternativet var stekta grönsaker med tofu
+__Sukhothai__ - Enl. de själva var det tveksamt om grytorna var veganska, vilket innebar att det enda alternativet var stekta grönsaker med tofu
 
 \- \-
 ---
