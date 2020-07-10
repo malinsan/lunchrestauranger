@@ -19,8 +19,6 @@ __Xin Chào__ - Vietnamesiskt. Ett antal olika "dagens lunch", varav alltid en v
 ---
 __Indiska Hörnet__ - Dagens veganska alternativ, gott indiskt men lite väl ofta Dal
 
-__Thai Oriental__ - Oklart om grytorna är veganska standard eller ej, men fixar om man frågar
-
 __Trappan (Folkets Hus)__ - Gott vegetariskt alternativ, ofta oklart om veganskt eller ej dock?
 
 +/-
