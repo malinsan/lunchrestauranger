@@ -13,6 +13,8 @@ __Solrosen__ - Vegetarisk bohemisk restaurang med veganskt alternativ, ALLTID ri
 
 __Silvis__ - Riktigt god pakistansk mat, med veganskt alternativ
 
+__Xin Chào__ - Vietnamesiskt. Ett antal olika "dagens lunch", varav alltid en vegansk. Flerkomponentsmat med god smak och stora portioner, till en liite högre prislapp (109:-) än "vanligt".
+
 \+
 ---
 __Indiska Hörnet__ - Dagens veganska alternativ, gott indiskt men lite väl ofta Dal
